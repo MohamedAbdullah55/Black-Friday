@@ -1,1 +1,1 @@
-# Beautiful insights into black friday data
+# Beautiful Insights Into Black Friday Data
